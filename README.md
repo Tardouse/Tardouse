@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jesse !(@z872845991）
+- 👋 Hi, I’m Jesse !(@Tardouse）
 - 👀 I’m interested in game,diy,and so on!
 - 🌱 I’m currently learning Deeplearning!
 - 📫 reach me for email: z872845991@gmail.com
